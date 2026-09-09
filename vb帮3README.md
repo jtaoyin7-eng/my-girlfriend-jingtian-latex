@@ -1,19 +1,5 @@
-## &#x274C; 亚马逊二审？ &#x274C; TikTok封店？ &#x274C; ChatGPT打不开？
-### &#x2705; 99% 是网络环境问题 —— 停用机场！！！
-## &#x1F525; 微信：fxxkj88   ` `   &#x21AA;&#xFE0E;进入网址：[ip7.cc](http://ip7.cc) 
-### &#x1F525;  真实住宅IP · 一店一IP · 全球节点
-### &#x26A1;100M—1000M专线独享
-### &#x2705; 君君专线， 领闭坑指南
-#
-#
-#
-#
-#
-#
-#
-#
-#
-#
-#
-#
-
+<div align="center">
+  <h1>&#x274C; 中 · 日 · 韩&#x274C; 欧美&#x274C; 基地&#x274C;</h1>
+  <h1>&#x1F525;进入网址：<a href="http://dck6.com" target="_blank" rel="noopener noreferrer">dck6.com</a></h1>
+  <br><br><br><br><br><br><br><br><br>
+</div>
